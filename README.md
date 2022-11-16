@@ -8,4 +8,4 @@ Sleeping
 ---
 Working out
 ---
-![image](https://user-images.githubusercontent.com/118245319/202086941-5f50c1a3-a703-460d-9a5c-74ce6d27fc95.png)
+![image](https://user-images.githubusercontent.com/118245319/202086993-3d1ea505-9802-4fe3-88ba-2175786b7e8b.png)
