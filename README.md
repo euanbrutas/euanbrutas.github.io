@@ -2,10 +2,10 @@
 ---
 ## My **Favorite** things to do
 ----
-Playing Basketball
+1. Playing Basketball
 ---
-Sleeping
+2. Sleeping
 ---
-Working out
+3. Working out
 ---
 ![image](https://user-images.githubusercontent.com/118245319/202086993-3d1ea505-9802-4fe3-88ba-2175786b7e8b.png)
