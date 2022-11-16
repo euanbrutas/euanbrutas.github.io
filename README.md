@@ -1,4 +1,4 @@
-# Welcome to euanbrutas.github.io
+# **Welcome to euanbrutas.github.io**
 ---
 My **Favorite* things to do
 ----
