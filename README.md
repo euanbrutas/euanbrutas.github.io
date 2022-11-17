@@ -10,4 +10,4 @@
 ---
 
 
-[`Facebook`](https://www.facebook.com/euan.brutas)
+[**Facebook**](https://www.facebook.com/euan.brutas)
