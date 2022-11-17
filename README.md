@@ -1,6 +1,6 @@
 # **Welcome to euanbrutas.github.io**
 ---
-## My **Favorite** things to do
+## My ```**Favorite**``` things to do
 ----
 1. Playing Basketball
 ---
