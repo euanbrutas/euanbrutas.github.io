@@ -2,7 +2,7 @@
 ---
 ## My **FAVORITE** things to do
 ----
-1. Playing Basketball 🏀
+ Playing Basketball 🏀
 
 **Basic Rules to Play Basketball**
 
@@ -16,18 +16,18 @@
 <iframe width="560" height="315" src="https://www.youtube.com/embed/SxvNmOTrohw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ---
-3. Working out 🏋️
+ Working out 🏋️
 
 **Quarantine workout : How to exercise to keep your immune system healthy**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1piFN_ioMVI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ---
-4. Social Media 📱
+ Social Media 📱
 
 [**Facebook**](https://www.facebook.com/euan.brutas)
 ---
-5. Music 🎧
+ Music 🎧
 
 **My playlist**
 
