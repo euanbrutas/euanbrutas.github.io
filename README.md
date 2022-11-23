@@ -25,7 +25,8 @@
 ---
  Social Media 📱
 
-[**Facebook**](https://www.facebook.com/euan.brutas)
+[**Facebook**](https://www.facebook.com/euan.brutas) [**Tiktok**](https://www.tiktok.com/@eukingbrutas1)
+
 ---
  Music 🎧
 
